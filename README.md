@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @SigmaNojus "Ofc Its a Joke"
-- 👀 I’m interested in "Copying Other People Stuff" :D
+- 👀 I’m interested in "Copying Other People Stuff"
 - 🌱 I’m currently learning "To steal" Oh srr... Yeah Coding. Yeah..
 - 📫 How to reach me "Idk try to call if Im at home"
 - ⚡ Fun fact: "Im kinda stupid in a smart way :D"
